@@ -2,7 +2,7 @@
 
 <p align="center">
   <a href="https://cutt.ly/urxVw3pU" target="_blank">
-    <img src="https://r.resimlink.com/vAFRBIXk.jpg" alt="ONWIN Slot Bonus Kampanyası" width="600" />
+    <img src="https://r.resimlink.com/lRyzD0LPK.jpg" alt="ONWIN Slot Bonus Kampanyası" width="600" />
   </a>
 </p>
 
